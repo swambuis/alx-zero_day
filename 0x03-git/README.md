@@ -1,1 +1,1 @@
-Learning is good
+Learning is good through doing hard things 
